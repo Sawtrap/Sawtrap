@@ -1,6 +1,6 @@
 <p align="center">
   <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/borders/mine/sdivred1.png" width="600px">
-  <br><br> <img src="https://f2.toyhou.se/file/f2-toyhou-se/images/87119513_lNebzCYQQqibqtN.png" width="300px">
+  <br><br> <img src="https://files.catbox.moe/nqwl32.png" width="300px">
 </p>
 
 
