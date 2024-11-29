@@ -6,7 +6,7 @@
 
 </p>
 <p align="center">
-  <b>cupid</b>/kyle (<a href="https://pronouns.cc/@irlcupid">+</a>) <img src="https://i.postimg.cc/76GFHx9N/IMG-4962.gif" width="10px"> they/it collectively <img src="https://i.postimg.cc/76GFHx9N/IMG-4962.gif" width="10px"> 18 [1/18]
+  <b>Sawtrap</b>/Gutz (<a href="https://pronouns.cc/@irlcupid">+</a>) <img src="https://files.catbox.moe/aqc5k2.gif" width="10px"> He/It Collectively <img src="https://files.catbox.moe/aqc5k2.gif" width="10px"> 19 [11/01]
   <br><br>
 <i>no strict dni just dont be weird</i>
 <br>bpdtistic disabled poc
