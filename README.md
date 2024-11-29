@@ -12,7 +12,7 @@
 <br>Autism, ADHD and DID haver 💔 (pick a struggle damn!)
 <br><b>Partner Systems with @yahi4mice our beloved
 <br><br>
-Typically we do not interact with others, We're Gatekeepy over our interests unintentionally so we refrain from interaction just incase.
+Typically we don't interact with others as we're gatekeepy about our interests, sry ^^!
 <br> <i>Almost always seen with our partner system and best friend!</i>
 <br> <b>Silly little Rick Sanchez selfshipper, Do not interact if you're going to talk about shipping with him. /srs</b>
 <br>
