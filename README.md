@@ -6,7 +6,7 @@
 
 </p>
 <p align="center">
-  <b>Sawtrap</b>/Gutz (<a href="https://pronouns.cc/@irlcupid">+</a>) <img src="https://files.catbox.moe/aqc5k2.gif" width="10px"> He/It Collectively <img src="https://files.catbox.moe/aqc5k2.gif" width="10px"> 19 [11/01]
+  <b>Sawtrap</b>/Gutz (<a href="https://pronouns.cc/@Sawtism">+</a>) <img src="https://files.catbox.moe/aqc5k2.gif" width="10px"> He/It Collectively <img src="https://files.catbox.moe/aqc5k2.gif" width="10px"> 19 [11/01]
   <br><br>
 <i>DNI if you aren't sillypilled and teeheemaxxing</i>
 <br>Autism, ADHD and DID haver 💔 (pick a struggle damn!)
