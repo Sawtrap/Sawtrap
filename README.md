@@ -13,7 +13,7 @@
 <br><b>Bestie Systems w @yahi4mice
 <br><br>
 Typically we don't interact with others as we're gatekeepy about our interests, sry ^^!
-<br> <i>Almost always seen with our partner system and best friend!</i>
+<br> <i>Almost always seen with our roomates!</i>
 <br> <b>Silly little Rick Sanchez selfshipper, Do not interact if you're going to talk about shipping with him. /srs</b>
 <br>
 <br> <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/borders/mine/sdivred1.png" width="600px">
