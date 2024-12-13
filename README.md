@@ -10,7 +10,7 @@
   <br><br>
 <i>DNI if you aren't sillypilled and teeheemaxxing</i>
 <br>Autism, ADHD and DID haver 💔 (pick a struggle damn!)
-<br><b>Partner Systems with @yahi4mice our beloved
+<br><b>Bestie Systems w @yahi4mice
 <br><br>
 Typically we don't interact with others as we're gatekeepy about our interests, sry ^^!
 <br> <i>Almost always seen with our partner system and best friend!</i>
